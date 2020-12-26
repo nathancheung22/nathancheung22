@@ -4,6 +4,3 @@
 - [LinkedIn](https://www.linkedin.com/in/nacheung22/)
 - [My Website](https://ncheung.ca)
 
-
-#### About me
-- I like trains 🚂
